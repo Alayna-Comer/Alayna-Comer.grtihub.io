@@ -1,2 +1,2 @@
-# Alayna-Comer.grtihub.io
+# Alayna-Comer.gihub.io
 Final Project 
